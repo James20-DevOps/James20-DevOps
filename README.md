@@ -1,4 +1,4 @@
-# Salut ! 👋 Je suis Edmond HOMIMA
+# Salut ! Ici Edmond HOMIMA
 
 ## 🚀 À propos de moi
 
